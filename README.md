@@ -1,4 +1,9 @@
-## Hi there 👋
+no but that's kinda <33
+
+![Sans titre 167_20240903055138](https://github.com/user-attachments/assets/8af5e675-5d2b-4483-981b-ba092eff6a2e)
+
+
+
 
 <!--
 **dustystarx/dustystarx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
