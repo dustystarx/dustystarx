@@ -1,4 +1,4 @@
-no but that's kinda <33
+literally me and ai guys !!
 
 ![Sans titre 167_20240903055138](https://github.com/user-attachments/assets/8af5e675-5d2b-4483-981b-ba092eff6a2e)
 
